@@ -1,5 +1,5 @@
 ### Hello Guys , i'am Hacker , 'WHITE HAT" , I HACK email, youtube, facebook, instagram, I AM THE HACKER who offers programs, CL0nEs, Trojan. 👋
-
+### Ola Pessoas , EU Sou UM HACKER , 'CHAPEU BRANCO' , EU HACKEIO email, youtube, facebook, instagram, EU SOU UM HACKER que criar programas, CL0nEs, Trojan. 
 <!--
 **Hacker-github-ctrl/Hacker-github-ctrl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
